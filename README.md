@@ -1,1 +1,1 @@
-Jinoy Tom Jacob
+ജസ്റ്റ് ജിനോയ്
